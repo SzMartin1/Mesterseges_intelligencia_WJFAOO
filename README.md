@@ -1,0 +1,1 @@
+# Mesterséges intelligencia beadandó
